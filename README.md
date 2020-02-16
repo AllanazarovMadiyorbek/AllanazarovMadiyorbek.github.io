@@ -1,1 +1,0 @@
-# AllanazarovMadiyorbek.github.io
